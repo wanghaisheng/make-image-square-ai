@@ -1,3 +1,2 @@
-WebSim Vibe Coding Starter
+https://capitalizemytitle.com/
 
-all tools are free 
